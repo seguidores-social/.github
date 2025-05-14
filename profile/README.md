@@ -6,9 +6,9 @@
 ### ¿Es posible conseguir 1000 seguidores gratis en TikTok?
 Claro que sí. Pero no con trucos mágicos o promesas vacías. Hay muchos mitos por ahí sobre "apps milagrosas" o "generadores automáticos". Algunos funcionan, otros no. Pero lo que sí funciona siempre es tener una estrategia real, constante y humana.
 
-##  [HAGA CLICC AQUI](https://agri-servicesagency.com/getmedia/3a2e33bc-c824-4ad5-ab24-7c15db735aad/t1kt0k?git)
+##  [HAGA CLICC AQUI](https://telegra.ph/1000-SEGUIDORES-EN-TIKTOK-GRATIS-05-14)
 
-##  [HAGA CLICC AQUI](https://agri-servicesagency.com/getmedia/3a2e33bc-c824-4ad5-ab24-7c15db735aad/t1kt0k?git)
+##  [HAGA CLICC AQUI](https://telegra.ph/1000-SEGUIDORES-EN-TIKTOK-GRATIS-05-14)
 
 ### Ventajas de tener 1000 seguidores
 
